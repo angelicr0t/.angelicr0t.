@@ -1,7 +1,7 @@
-# .hello, hi, heya, it's me your fave Kiskei.
-𓏵 . this is going to be really fuckin basic because i have no motivation ꒱
-Kise/kiskei ㅤ˳ strictly “ they/he “
-𓏵 . main fandoms: TF2, Hannibal, fnaf, south park, and mouthwashing ꒱
-i'm very erhm... antisocial around new people, i'm also very blunt and sarcastic so warnings in advance.
-𓏵 . i may 𝘳𝘢𝘳𝘦𝘭𝘺 have c + h in my name but if i don't and i do not know you please strictly dnc/dnt , basic boundary if you don't like that just hide me ꒱
-diagnosed audhd , so my social ques have gone to shit.
+<img width="498" height="281" alt="IMG_3728" src="https://github.com/user-attachments/assets/9091c3ae-98f7-4fe4-8200-6bf936f47bac" />
+WHAT'S UP BITCHES IT'S ME, YOUR FAVE BOY: KIIISKEIIII! 
+<img width="99" height="56" alt="IMG_3730" src="https://github.com/user-attachments/assets/6344b6df-7b19-4272-9fe4-f7a8cdbeaf1f" />
+Alright anyways onto the intro my dudes! 
+ DO: Interact, come say hi, and interact again! 
+ DON'T: C+H if you're a stranger, steal my skins, and be a dick! 
+ DNI: Melanie Martinez supporters, Vivienne Medrano supporters, basic dnis. (I will block and hide you don't test me man <img width="735" height="570" alt="Unknown" src="https://github.com/user-attachments/assets/bc5fbff3-3989-432c-9c3b-c17f564634c3" /> ) 
