@@ -10,4 +10,4 @@ Hello twinnamons, welcome back to my YouTube and today we're back at it again wi
 
  DON'T: C+H if you're a stranger, steal my skins, and be a dick! 
 
- DNI: Melanie Martinez supporters, Vivienne Medrano supporters, TX2 fans, basic dnis. (I will block and hide you don't test me man) 
+ DNI: Melanie Martinez supporters, Vivienne Medrano supporters that support her as a PERSON i could not be bothered to give a fuck if you like her shows, TX2 fans, basic dnis. (I will block and hide you don't test me man) 
