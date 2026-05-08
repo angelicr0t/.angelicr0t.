@@ -15,8 +15,6 @@
 
 ♣┇dni: Melanie Martinez fans and supporters, Vivienne Medrano supporters, basic dnis, anyone who doesn't respect Td with the excuse of "it's just pixels", people who use weight comments as jokes, people who use looks as jokes, ect. the list goes on. I block freely. 
 
-Go check out my partner's profile, he's awesome. <img width="2048" height="2048" alt="IMG_3863" src="https://github.com/user-attachments/assets/be053454-d53e-4ea8-8b4d-0a88a41ae55c" />
-
 
 blinkie drop down idea and credits to: @Flankersflank
 
