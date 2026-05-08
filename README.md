@@ -4,8 +4,13 @@
 
 
 ─ - ̗̀♚ intro, basically:
+
 ♥┇Name: Raimund / Angelo
+
 ♦┇Interests: Prehistoric life, evolution, animation, coding, Spooky's Jumpscare Mansion, South Park, FNAF, TF2, and other things. 
-♠┇Pronouns: they / them
+
+♠┇Pronouns: they / them / he / him
+
 ♣┇dni: Melanie Martinez fans and supporters, Vivienne Medrano supporters, basic dnis, anyone who doesn't respect Td with the excuse of "it's just pixels", people who use weight comments as jokes, people who use looks as jokes, ect. the list goes on. I block freely. 
+
 ﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍ ‧₊˚✧
