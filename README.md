@@ -31,6 +31,7 @@ blinkie drop down idea and credits to: @Flankersflank
 
 <summary> ${\textsf{\color{#beb8b4}﹕  Blinkies }}$ ..  </summary
 
+<img width="150" height="20" alt="IMG_3830" src="https://github.com/user-attachments/assets/18835de8-d697-4c3c-bb95-7935fbbeae51" />
 <img width="150" height="20" alt="IMG_3830" src="https://github.com/user-attachments/assets/e1590c94-0c76-440c-8d89-32aeff8bce20" />
 <img width="150" height="20" alt="IMG_2449" src="https://github.com/user-attachments/assets/fdd4f371-79d0-42b7-bb59-4af2b855d784" />
 <img width="150" height="20" alt="IMG_3835" src="https://github.com/user-attachments/assets/b8dc204e-b098-4c7f-bede-10ee217c5714" />
