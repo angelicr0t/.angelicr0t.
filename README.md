@@ -44,5 +44,7 @@ blinkie drop down idea and credits to: @Flankersflank
 <img width="150" height="20" alt="IMG_3833" src="https://github.com/user-attachments/assets/8e2048d3-969a-4fa2-9fcd-4e3fa53c64df" />
 <img width="150" height="21" alt="IMG_3832" src="https://github.com/user-attachments/assets/9fcb8e2c-8da8-408d-b4bd-cd2d3aadd502" />
 <img width="150" height="20" alt="IMG_3831" src="https://github.com/user-attachments/assets/af062d4b-1475-4274-897b-a1cfd624d5d2" />
+<img width="234" height="51" alt="IMG_3842" src="https://github.com/user-attachments/assets/90f036d6-3bbc-4174-aa4b-e773d61580b5" />
+<img width="150" height="40" alt="IMG_3843" src="https://github.com/user-attachments/assets/b779e678-0374-4466-bba8-4ccaf3ee3cbb" />
 
 ﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍ ‧₊˚✧
