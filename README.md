@@ -15,6 +15,7 @@
 
 ♣┇dni: Melanie Martinez fans and supporters, Vivienne Medrano supporters, basic dnis, anyone who doesn't respect Td with the excuse of "it's just pixels", people who use weight comments as jokes, people who use looks as jokes, ect. the list goes on. I block freely. 
 
+IMPORTANT THINGS┇ I do not have empathy / sympathy to people I do not know extremely well, do NOT vent to me unless I know you well, I'm heavily antisocial upon first meeting, and I am diagnosed autistic. 
 
 blinkie drop down idea and credits to: @Flankersflank
 
