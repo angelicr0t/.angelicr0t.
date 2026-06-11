@@ -1,22 +1,23 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=You+and+me+always+4ever!;say+you'll+stay;never+be+seperate+♡♡;you+know+you+got+me+in+ur+pocket!)](https://git.io/typing-svg)
 
-<img width="2360" height="778" alt="IMG_3829" src="https://github.com/user-attachments/assets/6184c22c-4cb6-4e32-bf7f-e19b84d74ff7" />
+
+<img width="1127" height="364" alt="IMG_5289" src="https://github.com/user-attachments/assets/4d74f106-cd14-453d-a089-deaa1cc83867" />
 
 
 ─ - ̗̀♚ intro, basically:
 
-♥┇Name: Kody / Angelo 
+♥┇Name: Kody 
 
 <img width="150" height="20" alt="IMG_5274" src="https://github.com/user-attachments/assets/6dab80b1-ce71-4b67-9428-3dc1f75eeb5f" />
 
 
-♦┇Interests: Prehistoric life, evolution, animation, coding, Spooky's Jumpscare Mansion, South Park, FNAF, TF2, and other things! !
+☆ ~ 〣 Interests: Prehistoric life, evolution, animation, coding, Spooky's Jumpscare Mansion, South Park, FNAF, TF2, and other things! !
 
-♠┇Pronouns: <img width="88" height="31" alt="IMG_5285" src="https://github.com/user-attachments/assets/cfa89129-0b7a-42e9-b64f-e5026a71ecd2" />
+♡ ~ 〣 Pronouns: <img width="88" height="31" alt="IMG_5285" src="https://github.com/user-attachments/assets/cfa89129-0b7a-42e9-b64f-e5026a71ecd2" />
 
 
 
-♣┇dni: Melanie Martinez fans and supporters, Vivienne Medrano supporters, basic dnis, anyone who doesn't respect Td with the excuse of "it's just pixels", people who use weight comments as jokes, people who use looks as jokes, ect. the list goes on. I block freely. Don't b weird man ! ! 
+☆ ~ 〣 dni: Melanie Martinez fans and supporters, Vivienne Medrano supporters, basic dnis, anyone who doesn't respect Td with the excuse of "it's just pixels", people who use weight comments as jokes, people who use looks as jokes, ect. the list goes on. I block freely. Don't b weird man ! ! 
 
 IMPORTANT THINGS┇ I do not have empathy / sympathy to people I do not know extremely well, do NOT vent to me unless I know you well, I'm heavily antisocial upon first meeting, and I am diagnosed autistic. 
 
