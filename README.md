@@ -72,6 +72,8 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 <details align="center">
 
 <summary> ${\textsf{\color{#fdffa1}﹕  Stamps! !  }}$ ..  </summary
+<img width="99" height="56" alt="IMG_5310" src="https://github.com/user-attachments/assets/83c58d88-0f6b-4309-a05a-52944613d1c9" />
+
 <img width="99" height="56" alt="IMG_5310" src="https://github.com/user-attachments/assets/fee2b26c-8bc1-495a-afec-af427c42e170" />
 <img width="99" height="56" alt="IMG_5297" src="https://github.com/user-attachments/assets/6428fc7a-a9ec-4756-a1e7-170873f286eb" />
 <img width="99" height="56" alt="IMG_5298" src="https://github.com/user-attachments/assets/05ff2265-28cc-4af8-bb7b-1f45d8272d11" />
