@@ -72,11 +72,18 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 <details align="center">
 
 <summary> ${\textsf{\color{#fdffa1}﹕  Stamps! !  }}$ ..  </summary
-<img width="99" height="56" alt="IMG_5304" src="https://github.com/user-attachments/assets/a38a2137-e576-43df-9193-b7e37d46cdf9" />
-<img width="99" height="56" alt="IMG_5303" src="https://github.com/user-attachments/assets/85142d72-ed29-418f-8cff-f49d77ea245c" />
-<img width="99" height="56" alt="IMG_5302" src="https://github.com/user-attachments/assets/5d2abe07-7d48-4a8d-9386-082440fb439a" />
-<img width="99" height="59" alt="IMG_5301" src="https://github.com/user-attachments/assets/3215f208-0204-410a-8264-a9aa8916747a" />
-<img width="99" height="56" alt="IMG_5299" src="https://github.com/user-attachments/assets/d653f161-1e97-4acd-85d1-028f30ea3b40" />
-<img width="99" height="56" alt="IMG_5300" src="https://github.com/user-attachments/assets/d84a7f7b-79f0-43c0-a421-b10475583616" />
-<img width="99" height="56" alt="IMG_5298" src="https://github.com/user-attachments/assets/d8c88773-74bb-4cae-af45-214fb0c0d69b" />
-<img width="99" height="56" alt="IMG_5297" src="https://github.com/user-attachments/assets/09de477c-dde7-430a-a753-12e0a6e46748" />
+<img width="99" height="56" alt="IMG_5310" src="https://github.com/user-attachments/assets/fee2b26c-8bc1-495a-afec-af427c42e170" />
+<img width="99" height="56" alt="IMG_5297" src="https://github.com/user-attachments/assets/6428fc7a-a9ec-4756-a1e7-170873f286eb" />
+<img width="99" height="56" alt="IMG_5298" src="https://github.com/user-attachments/assets/05ff2265-28cc-4af8-bb7b-1f45d8272d11" />
+<img width="99" height="56" alt="IMG_5300" src="https://github.com/user-attachments/assets/a496d143-9d0b-47ac-8106-23ce21d00d4c" />
+<img width="99" height="56" alt="IMG_5302" src="https://github.com/user-attachments/assets/e4ff7c12-c86a-4994-820d-701233c8d12f" />
+<img width="99" height="56" alt="IMG_5299" src="https://github.com/user-attachments/assets/6c038ab8-b332-4ab2-97b1-396614864600" />
+<img width="99" height="56" alt="IMG_5311" src="https://github.com/user-attachments/assets/74ced1c4-ed88-4657-b6e5-d5d7cb204024" />
+<img width="99" height="59" alt="IMG_5301" src="https://github.com/user-attachments/assets/7f5baa06-a694-480b-9c48-50000a20d0ce" />
+<img width="99" height="55" alt="IMG_5316" src="https://github.com/user-attachments/assets/a0938c57-81e9-45bc-9054-a6f1ebe521b6" />
+<img width="99" height="56" alt="IMG_5315" src="https://github.com/user-attachments/assets/90723469-fb07-4680-b319-30d5e5ffe95d" />
+<img width="99" height="56" alt="IMG_5303" src="https://github.com/user-attachments/assets/b31888fe-8f38-4c72-ab95-fa5fe1a82fd2" />
+<img width="99" height="56" alt="IMG_5314" src="https://github.com/user-attachments/assets/036e0cf9-7498-4a48-b158-ebcd81cb8cae" />
+<img width="99" height="56" alt="IMG_5313" src="https://github.com/user-attachments/assets/2944e52c-4207-4b05-94ae-d8569135c2cf" />
+<img width="99" height="56" alt="IMG_5304" src="https://github.com/user-attachments/assets/c889a3fe-1669-4932-9c84-d224819dafce" />
+<img width="102" height="58" alt="IMG_5312" src="https://github.com/user-attachments/assets/a69db207-e0b1-4006-ad31-002582cf69dc" />
