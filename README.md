@@ -35,7 +35,7 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 
 <details align="center">
 
-<summary> ${\textsf{\color{#2596be}﹕  Blinkies! !  }}$ ..  </summary
+<summary> ${\textsf{\color{#fdffa1}﹕  Blinkies! !  }}$ ..  </summary
 
 <img width="150" height="20" alt="IMG_5277" src="https://github.com/user-attachments/assets/446d0dc6-ddbf-4888-bbaf-bcdef166a3da" />
 
@@ -71,4 +71,12 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 
 <details align="center">
 
-<summary> ${\textsf{\color{#2596be}﹕  Stamps! !  }}$ ..  </summary
+<summary> ${\textsf{\color{#fdffa1}﹕  Stamps! !  }}$ ..  </summary
+<img width="99" height="56" alt="IMG_5304" src="https://github.com/user-attachments/assets/a38a2137-e576-43df-9193-b7e37d46cdf9" />
+<img width="99" height="56" alt="IMG_5303" src="https://github.com/user-attachments/assets/85142d72-ed29-418f-8cff-f49d77ea245c" />
+<img width="99" height="56" alt="IMG_5302" src="https://github.com/user-attachments/assets/5d2abe07-7d48-4a8d-9386-082440fb439a" />
+<img width="99" height="59" alt="IMG_5301" src="https://github.com/user-attachments/assets/3215f208-0204-410a-8264-a9aa8916747a" />
+<img width="99" height="56" alt="IMG_5299" src="https://github.com/user-attachments/assets/d653f161-1e97-4acd-85d1-028f30ea3b40" />
+<img width="99" height="56" alt="IMG_5300" src="https://github.com/user-attachments/assets/d84a7f7b-79f0-43c0-a421-b10475583616" />
+<img width="99" height="56" alt="IMG_5298" src="https://github.com/user-attachments/assets/d8c88773-74bb-4cae-af45-214fb0c0d69b" />
+<img width="99" height="56" alt="IMG_5297" src="https://github.com/user-attachments/assets/09de477c-dde7-430a-a753-12e0a6e46748" />
