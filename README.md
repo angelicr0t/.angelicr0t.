@@ -40,7 +40,7 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 <img width="150" height="20" alt="IMG_5277" src="https://github.com/user-attachments/assets/446d0dc6-ddbf-4888-bbaf-bcdef166a3da" />
 
 <img width="150" height="20" alt="IMG_5277" src="https://github.com/user-attachments/assets/30b687d3-1ea0-4ee9-b182-674c638e31ae" />
-<img width="150" height="20" alt="IMG_5276" src="https://github.com/user-attachments/assets/b44a29b8-3fa4-4aed-979a-1e29a63ca804" />
+
 <img width="150" height="20" alt="IMG_5269" src="https://github.com/user-attachments/assets/86a7730e-fa7e-4304-982c-7e141ffc5b6e" />
 <img width="150" height="20" alt="IMG_5269" src="https://github.com/user-attachments/assets/3096e653-e75b-4bf7-9266-d15e707e5014" />
 <img width="150" height="20" alt="IMG_5270" src="https://github.com/user-attachments/assets/2657e989-efbe-4c91-84ec-6b3099f30fae" />
