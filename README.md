@@ -89,3 +89,22 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 <img width="99" height="56" alt="IMG_5313" src="https://github.com/user-attachments/assets/2944e52c-4207-4b05-94ae-d8569135c2cf" />
 <img width="99" height="56" alt="IMG_5304" src="https://github.com/user-attachments/assets/c889a3fe-1669-4932-9c84-d224819dafce" />
 <img width="102" height="58" alt="IMG_5312" src="https://github.com/user-attachments/assets/a69db207-e0b1-4006-ad31-002582cf69dc" />
+
+﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍ ‧₊˚✧
+<br/>
+
+<div align="center">
+
+
+
+</details>
+
+<details align="center">
+
+<summary> ${\textsf{\color{#fdffa1}﹕  Buttons! !  }}$ ..  </summary
+<img width="88" height="31" alt="IMG_5284" src="https://github.com/user-attachments/assets/bbf66ecd-3432-4122-aec1-3765821e1879" />
+<img width="99" height="56" alt="IMG_5305" src="https://github.com/user-attachments/assets/fc826d3d-d6c5-4709-9ca4-9486cf24bb2a" />
+<img width="88" height="31" alt="IMG_5306" src="https://github.com/user-attachments/assets/00644f39-4399-4f65-b21e-4ea5b562e648" />
+<img width="88" height="31" alt="IMG_5307" src="https://github.com/user-attachments/assets/2d19a95f-3585-4817-b13c-4aca097cae2d" />
+<img width="88" height="31" alt="IMG_5308" src="https://github.com/user-attachments/assets/0c2dc6a6-5601-48ab-bdde-0a544e020e34" />
+<img width="88" height="31" alt="IMG_5309" src="https://github.com/user-attachments/assets/ade2e7f3-09c1-4a1d-9f62-4f743944499f" />
