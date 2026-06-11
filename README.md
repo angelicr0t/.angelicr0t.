@@ -4,7 +4,7 @@
 <img width="1127" height="364" alt="IMG_5289" src="https://github.com/user-attachments/assets/4d74f106-cd14-453d-a089-deaa1cc83867" />
 
 
-“     𓏻𓏻𓏻  ☆ intro, basically ! ! :
+“     𓏻𓏻𓏻      ☆ intro, basically ! ! :
 
 ♡ ~ 〣 name: Kody 
 
