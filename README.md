@@ -17,7 +17,7 @@
 
 
 
-☆ ~ 〣 dni: Melanie Martinez fans and supporters, Vivienne Medrano supporters, basic dnis, anyone who doesn't respect Td with the excuse of "it's just pixels", people who use weight comments as jokes, people who use looks as jokes, ect. the list goes on. I block freely. Don't b weird man ! ! 
+☆ ~ 〣 dni: Melanie Martinez fans and supporters, people who support Vivienne Medrano's actions, basic dnis, the list goes on. I block freely but that's just a guide. Don't b weird man ! ! 
 
 IMPORTANT THINGS┇ I do not have empathy / sympathy to people I do not know extremely well, do NOT vent to me unless I know you well, I'm heavily antisocial upon first meeting, and I am diagnosed autistic. 
 
