@@ -38,18 +38,24 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 <summary> ${\textsf{\color{#2596be}﹕  Blinkies! !  }}$ ..  </summary
 
 
-<img width="150" height="20" alt="IMG_5281" src="https://github.com/user-attachments/assets/50813ce1-42e2-4e9d-b346-fd4e54c52f6a" />
-<img width="150" height="20" alt="IMG_5280" src="https://github.com/user-attachments/assets/feb0b881-fcdc-48dd-8a9d-47255bb37dee" />
-<img width="150" height="20" alt="IMG_5279" src="https://github.com/user-attachments/assets/9a9e73bd-dfa2-424e-a753-48d6e5daa82f" />
-<img width="150" height="20" alt="IMG_5278" src="https://github.com/user-attachments/assets/63221bec-e0f0-444f-9cb5-a4e6e647aa43" />
-<img width="150" height="20" alt="IMG_5277" src="https://github.com/user-attachments/assets/65e1744d-8ae5-4062-9971-2d3021e6ff27" />
-<img width="150" height="20" alt="IMG_5276" src="https://github.com/user-attachments/assets/55926acc-f2fe-4f38-a3c9-e5e4cb4d8e04" />
-<img width="150" height="20" alt="IMG_5275" src="https://github.com/user-attachments/assets/5e8b58b1-fdf5-4751-a689-0bfc2d15eb6f" />
-<img width="149" height="19" alt="IMG_5273" src="https://github.com/user-attachments/assets/e6901b8b-b76c-4fb8-a5f8-b4fc76ab85f7" />
-<img width="150" height="20" alt="IMG_5272" src="https://github.com/user-attachments/assets/bdfb476d-75ce-4b67-90c7-e480f928dc64" />
-<img width="150" height="20" alt="IMG_5271" src="https://github.com/user-attachments/assets/23a80049-8508-451d-a466-5ec430176b91" />
-<img width="150" height="20" alt="IMG_5270" src="https://github.com/user-attachments/assets/3238dbaa-aad3-4425-a379-3c30b36eaebd" />
-<img width="150" height="20" alt="IMG_5269" src="https://github.com/user-attachments/assets/40db343e-1458-45d1-88a1-b50ac8feac3e" />
+<img width="150" height="20" alt="IMG_5277" src="https://github.com/user-attachments/assets/c85adcc3-5d9b-4e9e-9aba-180ae5f25795" />
+<img width="150" height="20" alt="IMG_5276" src="https://github.com/user-attachments/assets/852fdfac-2a03-4f8d-94dc-ce24f5f61934" />
+<img width="150" height="20" alt="IMG_5271" src="https://github.com/user-attachments/assets/b525f9f4-af91-4d5e-818f-cb8eeb02316c" />
+<img width="150" height="20" alt="IMG_5270" src="https://github.com/user-attachments/assets/29075aea-2a22-46c4-b321-1433d05f05d6" />
+<img width="150" height="20" alt="IMG_5269" src="https://github.com/user-attachments/assets/b1bbdd89-bf7d-4bcc-8ff7-4c5fcb1b6c0a" />
+<img width="150" height="20" alt="IMG_5272" src="https://github.com/user-attachments/assets/b3796ed6-e893-4673-bae3-688c31e5c187" />
+<img width="150" height="20" alt="IMG_5275" src="https://github.com/user-attachments/assets/ed448796-aeb7-478d-a8f9-6a1fa5cc0466" />
+<img width="149" height="19" alt="IMG_5273" src="https://github.com/user-attachments/assets/e3af3630-957b-4a90-b2dc-8e9f41c8bbc5" />
+<img width="150" height="20" alt="IMG_5278" src="https://github.com/user-attachments/assets/5af8445d-2a2d-437d-b103-68c4cffc3217" />
+<img width="150" height="20" alt="IMG_5279" src="https://github.com/user-attachments/assets/d3f39360-e916-4e44-9d01-d7d64a4f6ad3" />
+<img width="150" height="20" alt="IMG_5281" src="https://github.com/user-attachments/assets/f8407db3-92a6-4dbe-b3b5-135a9705fcd1" />
+<img width="150" height="20" alt="IMG_5295" src="https://github.com/user-attachments/assets/66bca48c-3e5a-4f3a-9cb5-78d607e2afbe" />
+<img width="150" height="20" alt="IMG_5293" src="https://github.com/user-attachments/assets/b35b2dcb-d81b-48e5-8a09-ef57ed4692ca" />
+<img width="150" height="20" alt="IMG_5294" src="https://github.com/user-attachments/assets/60de143b-f4af-4077-a843-da531b9dfb7d" />
+<img width="150" height="20" alt="IMG_5280" src="https://github.com/user-attachments/assets/f8675f16-9201-48ab-a07d-78adddd8fd80" />
+<img width="150" height="20" alt="IMG_5282" src="https://github.com/user-attachments/assets/99a186e3-35bc-4535-82c6-b0f3be5d78f2" />
+<img width="150" height="20" alt="IMG_5283" src="https://github.com/user-attachments/assets/6f7516d0-e1cf-4f86-bcb9-1c6954ab3a6d" />
+
 
 
 ﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍ ‧₊˚✧
