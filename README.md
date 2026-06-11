@@ -4,9 +4,9 @@
 <img width="1127" height="364" alt="IMG_5289" src="https://github.com/user-attachments/assets/4d74f106-cd14-453d-a089-deaa1cc83867" />
 
 
-─ - ̗̀♚ intro, basically:
+“     𓏻𓏻𓏻  ☆ intro, basically ! ! :
 
-♥┇Name: Kody 
+♡ ~ 〣 name: Kody 
 
 <img width="150" height="20" alt="IMG_5317" src="https://github.com/user-attachments/assets/0eae6747-4d6c-48a9-91a3-f3ebf9827af9" />
 
