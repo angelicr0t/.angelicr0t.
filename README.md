@@ -8,7 +8,7 @@
 
 ♥┇Name: Kody 
 
-<img width="150" height="20" alt="IMG_5274" src="https://github.com/user-attachments/assets/6dab80b1-ce71-4b67-9428-3dc1f75eeb5f" />
+<img width="150" height="20" alt="IMG_5317" src="https://github.com/user-attachments/assets/0eae6747-4d6c-48a9-91a3-f3ebf9827af9" />
 
 
 ☆ ~ 〣 Interests: Prehistoric life, evolution, animation, coding, Spooky's Jumpscare Mansion, South Park, FNAF, TF2, and other things! !
@@ -72,8 +72,9 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 <details align="center">
 
 <summary> ${\textsf{\color{#fdffa1}﹕  Stamps! !  }}$ ..  </summary
-<img width="99" height="56" alt="IMG_5310" src="https://github.com/user-attachments/assets/83c58d88-0f6b-4309-a05a-52944613d1c9" />
 
+
+<img width="99" height="56" alt="IMG_5310" src="https://github.com/user-attachments/assets/83c58d88-0f6b-4309-a05a-52944613d1c9" />
 <img width="99" height="56" alt="IMG_5310" src="https://github.com/user-attachments/assets/fee2b26c-8bc1-495a-afec-af427c42e170" />
 <img width="99" height="56" alt="IMG_5297" src="https://github.com/user-attachments/assets/6428fc7a-a9ec-4756-a1e7-170873f286eb" />
 <img width="99" height="56" alt="IMG_5298" src="https://github.com/user-attachments/assets/05ff2265-28cc-4af8-bb7b-1f45d8272d11" />
@@ -89,6 +90,7 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 <img width="99" height="56" alt="IMG_5313" src="https://github.com/user-attachments/assets/2944e52c-4207-4b05-94ae-d8569135c2cf" />
 <img width="99" height="56" alt="IMG_5304" src="https://github.com/user-attachments/assets/c889a3fe-1669-4932-9c84-d224819dafce" />
 <img width="102" height="58" alt="IMG_5312" src="https://github.com/user-attachments/assets/a69db207-e0b1-4006-ad31-002582cf69dc" />
+<img width="99" height="56" alt="IMG_5305" src="https://github.com/user-attachments/assets/285ccbfe-6a55-4ee4-9cf7-dbc5a706ab6f" />
 
 ﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍ ‧₊˚✧
 <br/>
@@ -102,7 +104,7 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 <details align="center">
 
 <summary> ${\textsf{\color{#fdffa1}﹕  Buttons! !  }}$ ..  </summary
-<img width="88" height="31" alt="IMG_5284" src="https://github.com/user-attachments/assets/bbf66ecd-3432-4122-aec1-3765821e1879" />
+
 <img width="99" height="56" alt="IMG_5305" src="https://github.com/user-attachments/assets/fc826d3d-d6c5-4709-9ca4-9486cf24bb2a" />
 <img width="88" height="31" alt="IMG_5306" src="https://github.com/user-attachments/assets/00644f39-4399-4f65-b21e-4ea5b562e648" />
 <img width="88" height="31" alt="IMG_5307" src="https://github.com/user-attachments/assets/2d19a95f-3585-4817-b13c-4aca097cae2d" />
