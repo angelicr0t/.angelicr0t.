@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=You+and+me+always+4ever!;say+u'll+stay;never+b+seperate+!+♡;you+know+you+got+me+in+ur+pocket!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Archivo+Black&pause=1000&color=F7F6A8&background=FFFBA000&width=435&lines=AND+MY+MANNN!+;THANK+U+2+MY+MANN!;%F0%9F%8D%80)](https://git.io/typing-svg)
 
 
 <img width="1127" height="364" alt="IMG_5289" src="https://github.com/user-attachments/assets/4d74f106-cd14-453d-a089-deaa1cc83867" />
