@@ -1,3 +1,5 @@
+<img width="400" height="22" alt="IMG_5393" src="https://github.com/user-attachments/assets/9d8cb11b-3ccb-48b3-babe-1b3b4920dc6c" />
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Archivo+Black&pause=1000&color=F7F6A8&background=FFFBA000&width=435&lines=AND+MY+MANNN!+;THANK+U+2+MY+MANN!;%F0%9F%8D%80)](https://git.io/typing-svg)
 
 
@@ -23,7 +25,8 @@ IMPORTANT THINGS┇ I do not have empathy / sympathy to people I do not know ext
 
 blinkie & stamp drop down idea and credits to: @Flankersflank
 
-﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍ ‧₊˚✧
+<img width="400" height="22" alt="IMG_5393" src="https://github.com/user-attachments/assets/0f7d5e13-ee97-4b50-982d-cc08aea29a88" />
+
 
 <br/>
 
@@ -36,6 +39,9 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 <details align="center">
 
 <summary> ${\textsf{\color{#fdffa1}﹕  Blinkies! !  }}$ ..  </summary
+
+
+
 
 <img width="150" height="20" alt="IMG_5277" src="https://github.com/user-attachments/assets/446d0dc6-ddbf-4888-bbaf-bcdef166a3da" />
 
@@ -60,7 +66,7 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 
 
 
-﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍ ‧₊˚✧
+
 <br/>
 
 <div align="center">
@@ -72,6 +78,8 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 <details align="center">
 
 <summary> ${\textsf{\color{#fdffa1}﹕  Stamps! !  }}$ ..  </summary
+
+
 
 
 <img width="99" height="56" alt="IMG_5310" src="https://github.com/user-attachments/assets/83c58d88-0f6b-4309-a05a-52944613d1c9" />
@@ -92,7 +100,7 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 <img width="102" height="58" alt="IMG_5312" src="https://github.com/user-attachments/assets/a69db207-e0b1-4006-ad31-002582cf69dc" />
 <img width="99" height="56" alt="IMG_5305" src="https://github.com/user-attachments/assets/285ccbfe-6a55-4ee4-9cf7-dbc5a706ab6f" />
 
-﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍﹉﹍ ‧₊˚✧
+
 <br/>
 
 <div align="center">
@@ -105,8 +113,13 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 
 <summary> ${\textsf{\color{#fdffa1}﹕  Buttons! !  }}$ ..  </summary
 
+
+
+
 <img width="99" height="56" alt="IMG_5305" src="https://github.com/user-attachments/assets/fc826d3d-d6c5-4709-9ca4-9486cf24bb2a" />
 <img width="88" height="31" alt="IMG_5306" src="https://github.com/user-attachments/assets/00644f39-4399-4f65-b21e-4ea5b562e648" />
 <img width="88" height="31" alt="IMG_5307" src="https://github.com/user-attachments/assets/2d19a95f-3585-4817-b13c-4aca097cae2d" />
 <img width="88" height="31" alt="IMG_5308" src="https://github.com/user-attachments/assets/0c2dc6a6-5601-48ab-bdde-0a544e020e34" />
 <img width="88" height="31" alt="IMG_5309" src="https://github.com/user-attachments/assets/ade2e7f3-09c1-4a1d-9f62-4f743944499f" />
+
+
