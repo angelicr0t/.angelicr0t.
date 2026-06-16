@@ -2,6 +2,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Archivo+Black&pause=1000&color=F7F6A8&background=FFFBA000&width=435&lines=AND+MY+MANNN!+;THANK+U+2+MY+MANN!;%F0%9F%8D%80)](https://git.io/typing-svg)
 
+<img width="310" height="16" alt="IMG_5392" src="https://github.com/user-attachments/assets/75b5481c-21b9-4f1c-98ef-530f32d351b0" />
 
 <img width="1127" height="364" alt="IMG_5289" src="https://github.com/user-attachments/assets/4d74f106-cd14-453d-a089-deaa1cc83867" />
 
@@ -19,7 +20,7 @@
 
 
 
-☆ ~ 〣 dni: Melanie Martinez fans and supporters, people who support Vivienne Medrano's actions, basic dnis, the list goes on. I block freely but that's just a guide. Don't b weird man ! ! 
+☆ ~ 〣 dni: basic dnis, the list goes on. I block freely but that's just a guide. Don't b weird man ! ! 
 
 IMPORTANT THINGS┇ I do not have empathy / sympathy to people I do not know extremely well, do NOT vent to me unless I know you well, I'm heavily antisocial upon first meeting, and I am diagnosed autistic. 
 
