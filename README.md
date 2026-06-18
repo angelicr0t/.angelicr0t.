@@ -37,7 +37,7 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 
 </details>
 
-<details align="center">
+<details align="left">
 
 <summary> ${\textsf{\color{#fdffa1}﹕  Blinkies! !  }}$ ..  </summary
 
@@ -76,7 +76,7 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 
 </details>
 
-<details align="center">
+<details align="left">
 
 <summary> ${\textsf{\color{#fdffa1}﹕  Stamps! !  }}$ ..  </summary
 
@@ -110,7 +110,7 @@ blinkie & stamp drop down idea and credits to: @Flankersflank
 
 </details>
 
-<details align="center">
+<details align="left">
 
 <summary> ${\textsf{\color{#fdffa1}﹕  Buttons! !  }}$ ..  </summary
 
