@@ -33,8 +33,11 @@ under construction.
 
 <summary> ${\textsf{\color{#5e1c00}﹕  DNI.   }}$ ..  </summary
 
+Like stated in my bio DNI if you're: under the age of 13 or over the age of 18. Respect this or you're getting your ass blocked. 
 
+Basic DNI: Zoophiles, pedos, Transphobes, Homophobes, Xenophobes, Racists, Pigs, Tr*mp supporters, religion, and past blocked people. 
 
+Other than the basic DNIs I block freely, don't be surpised if I block you. 
 
 
 
@@ -54,6 +57,9 @@ under construction.
 
 <summary> ${\textsf{\color{#5e0000}﹕  Boundaries.   }}$ ..  </summary
 
+No you can't hide behind me if I don't know you, no you can't spam kiss me if I don't know you, no you can't cuddle me if I don't know you, and lastly no you can't cover me if I don't know you. 
+
+What you CAN do is spam boop, spam nuzzle, and talk to me. I swear I'm not as mean as I look gang. 
 
 
 
