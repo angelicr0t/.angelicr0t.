@@ -22,7 +22,7 @@ under construction.
 
 <details align="left">
 
-<summary> ${\textsf{\color{#000000}﹕  Blinkies.   }}$ ..  </summary
+<summary> ${\textsf{\color{#5e1c00}﹕  Blinkies.   }}$ ..  </summary
 
 
 
@@ -60,7 +60,7 @@ under construction.
 
 <details align="left">
 
-<summary> ${\textsf{\color{#000000}﹕  Buttons.   }}$ ..  </summary
+<summary> ${\textsf{\color{#5e1c00}﹕  Buttons.   }}$ ..  </summary
 
 
 
