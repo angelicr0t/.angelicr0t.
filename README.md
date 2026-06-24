@@ -1,4 +1,4 @@
-<img width="400" height="142" alt="IMG_5594" src="https://github.com/user-attachments/assets/63cdb06f-ac4b-48fd-822b-8a52e5eb50f3" />
+<img width="509" height="96" alt="IMG_5597" src="https://github.com/user-attachments/assets/ef94818d-b60e-4262-955a-dca83fbdc77f" />
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4D0000&width=435&lines=Put+your+lips+next+to+mine%2C+dear.+;Won't+you+kiss+me+once%2C+baby%3F;Just+a+kiss+goodnight%2C+maybe.+;You+and+I+will+fall+in+love+(you+and+I+will+fall+in+love))](https://git.io/typing-svg)
