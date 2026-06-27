@@ -33,7 +33,7 @@ under construction. i'm a lazy fuck this will not be finished in a day. smh.
 
 <summary> ${\textsf{\color{#5e1c00}﹕  DNI.   }}$ ..  </summary
 
-Like stated in my bio DNI if you're: under the age of 13 or over the age of 18. Respect this or you're getting your ass blocked when/if I find out. 
+Like stated in my bio DNI if you're: under the age of 13 . Respect this or you're getting your ass blocked when/if I find out. 
 
 Basic DNI: Zoophiles, pedos, Transphobes, Homophobes, Xenophobes, Racists, Pigs, Tr*mp supporters, religion, and past blocked people. 
 
