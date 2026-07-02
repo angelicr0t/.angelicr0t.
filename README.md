@@ -22,7 +22,7 @@ under construction. i'm a lazy fuck this will not be finished in a day. smh.
 
 This is a pt (ponytown) account, not an actual coding based account. I use nonbinary and masc pronouns, nonbinary preferred.
 
-I'm uh gay and bi curious (+ demiboy) I'm a super cool guy so er... Yeah. I have high functioning autism, suspected to have ADHD yet haven't tested for it. I'll add more to this later
+I'm uh gay and bi curious (+ demiboy) I'm a super cool guy so er... Yeah. I have high functioning autism, suspected to have ADHD yet haven't tested for it because I'm broke as fuck. angelicr0t/.angelicr0t. on most socials (ex. Discord, Roblox, Pinterest, nd other shit).,I'll add more to this later
 
 <br/>
 
