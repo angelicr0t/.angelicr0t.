@@ -5,7 +5,7 @@
 
 under construction. i'm a lazy fuck this will not be finished in a day. smh. 
 
-<img width="338" height="42" alt="IMG_5593" src="https://github.com/user-attachments/assets/15a715c5-3054-43d3-9022-3487a90c13bb" />
+
 
 
 <br/>
