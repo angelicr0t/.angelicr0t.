@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&pause=1000&color=EC602D&width=435&lines=So+I+party+like+a+rockstar%2C+;look+like+a+p%E2%99%A1rnstar;Every+day+I+go+hard%2C;riding+in+my+sports+car;Pull+off+in+that+V8%2C+songs+on+replay;Spinnin'+like+a+DJ%2C+make+it+look+ez;'Cause+I+go+faster+and+harder!!!+)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&pause=1000&color=EC602D&width=435&lines=So+I+party+like+a+rockstar%2C+;look+like+a+p★rnstar;Every+day+I+go+hard%2C;riding+in+my+sports+car;Pull+off+in+that+V8%2C+songs+on+replay;Spinnin'+like+a+DJ%2C+make+it+look+ez;'Cause+I+go+faster+and+harder!!!+)](https://git.io/typing-svg)
 <img width="400" height="20" alt="IMG_5601" src="https://github.com/user-attachments/assets/33bf5044-8e25-4ffd-bcf1-93817cc36b68" />
 
 
