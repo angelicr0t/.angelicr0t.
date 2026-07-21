@@ -82,7 +82,7 @@ What you CAN do is spam boop, spam nuzzle, hide behind me, cuddle me, and talk t
 <details align="center">
 
 <summary> ${\textsf{\color{#5e1c00}﹕  Blinkies.   }}$ ..  </summary
-
+Outdated! Redoing soon! ^_^
 
 <br/>
 
@@ -98,6 +98,6 @@ What you CAN do is spam boop, spam nuzzle, hide behind me, cuddle me, and talk t
 
 <summary> ${\textsf{\color{#5e0000}﹕  Stamps.   }}$ ..  </summary
 
-
+Outdated! Redoing soon! ^_^
 
 
