@@ -68,7 +68,7 @@ Other than the basic DNIs I block freely, don't be surpised if I block you.
 
 <summary> ${\textsf{\color{#5e0000}﹕  Boundaries.   }}$ ..  </summary
 
-No you can't spam kiss me if I don't know you, and lastly no you can't cover me if I don't know you. 
+No you can't spam kiss me if I don't know you, and secondly no you can't cover me if I don't know you. 
 
 What you CAN do is spam boop, spam nuzzle, hide behind me, cuddle me, and talk to me. I swear I'm not as mean as I look gang. 
 
