@@ -82,12 +82,12 @@ What you CAN do is spam boop, spam nuzzle, hide behind me, cuddle me, and talk t
 <details align="center">
 
 <summary> ${\textsf{\color{#5e1c00}﹕  Blinkies.   }}$ ..  </summary
-Outdated! Redoing soon! ^_^
+
 
 <br/>
 
 <div align="center">
-
+Outdated! Redoing soon! ^_^
 
 
 
