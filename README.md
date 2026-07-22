@@ -103,6 +103,22 @@ Outdated! Redoing soon! ^_^
 
 <summary> ${\textsf{\color{#5e0000}﹕  Stamps.   }}$ ..  </summary
 
-Outdated! Redoing soon! ^_^
+<img width="99" height="56" alt="IMG_6621" src="https://github.com/user-attachments/assets/a8319774-1065-4cdb-ae05-5bb75810c14f" />
+<img width="99" height="56" alt="IMG_5613" src="https://github.com/user-attachments/assets/05ef664d-c7f9-4228-b7d8-40c31d45239a" />
+<img width="99" height="56" alt="IMG_6623" src="https://github.com/user-attachments/assets/b6a78a60-cceb-42d4-990a-1643321ab87c" />
+<img width="99" height="56" alt="IMG_5611" src="https://github.com/user-attachments/assets/52c23477-1093-4894-90c0-f05d3b1c618d" />
+<img width="99" height="56" alt="IMG_6625" src="https://github.com/user-attachments/assets/1e25eda1-c4cc-475b-b08e-11f80d505eb3" />
+<img width="99" height="56" alt="IMG_6626" src="https://github.com/user-attachments/assets/99830971-6c9e-4807-8d13-e8d037345d5f" />
+<img width="99" height="56" alt="IMG_5618" src="https://github.com/user-attachments/assets/4389beaa-06ca-46d3-900c-5b8a82023234" />
+<img width="102" height="58" alt="IMG_6628" src="https://github.com/user-attachments/assets/eb7b231d-587a-40ef-9052-1eaad9dceba3" />
+<img width="99" height="56" alt="IMG_6629" src="https://github.com/user-attachments/assets/a9b447f6-9cfa-4523-a311-7b67549f6580" />
+<img width="99" height="56" alt="IMG_6631" src="https://github.com/user-attachments/assets/76c1599d-c9af-443e-b59e-53d1aaf3a2b7" />
+<img width="99" height="56" alt="IMG_6632" src="https://github.com/user-attachments/assets/8e5edfc1-6875-4d8f-b771-3a3cf446dc47" />
 
 
+</details>
+
+<details align="center">
+
+<summary> ${\textsf{\color{#5e1c00}﹕  Fandoms.   }}$ ..  </summary
+My fandoms are: TF2, Cookie Run, CoD, Outlast: Trials (obviously LMAO), FNAF, PJSK, Mouthwashing, The Boys, MCU, Spiderverse, Sanrio, South Park, Spider-Man
