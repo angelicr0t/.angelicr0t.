@@ -121,4 +121,6 @@ Outdated! Redoing soon! ^_^
 <details align="center">
 
 <summary> ${\textsf{\color{#5e1c00}﹕  Fandoms.   }}$ ..  </summary
+<img width="135" height="146" alt="IMG_6633" src="https://github.com/user-attachments/assets/adee8870-14c4-4437-9007-aca7e0ab67d3" />
+
 My fandoms are: TF2, Cookie Run, CoD, Outlast: Trials (obviously LMAO), FNAF, PJSK, Mouthwashing, The Boys, MCU, Spiderverse, Sanrio, South Park, Spider-Man
