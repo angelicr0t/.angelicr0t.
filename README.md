@@ -44,13 +44,15 @@ I'll add more to this later
 
 <summary> ${\textsf{\color{#5e1c00}﹕  DNI.   }}$ ..  </summary
 
+˗ˏˋ 🔥 ˎˊ˗
+
 Like stated in my bio DNI if you're: under the age of 13 . Respect this or you're getting your ass blocked when/if I find out. 
 
 Basic DNI: Zoophiles, pedos, Transphobes, Homophobes, Xenophobes, Racists, Pigs, Tr*mp supporters, religion, Melanie Martinez supporters/ppl who listen to her, people who play any of Quel's games after the controversy (addition to this DNI if you're in the Dandy's World fandom y'all can be weird asf), and past blocked people. 
 
 Other than the basic DNIs I block freely, don't be surpised if I block you. 
 
-
+˗ˏˋ 💥 ˎˊ˗
 
 
 
@@ -68,11 +70,12 @@ Other than the basic DNIs I block freely, don't be surpised if I block you.
 
 <summary> ${\textsf{\color{#5e0000}﹕  Boundaries.   }}$ ..  </summary
 
+˗ˏˋ 💥 ˎˊ˗
 No you can't spam kiss me if I don't know you, and secondly no you can't cover me if I don't know you. 
 
 What you CAN do is spam boop, spam nuzzle, hide behind me, cuddle me, and talk to me. I swear I'm not as mean as I look gang. 
 
-
+˗ˏˋ 🔥 ˎˊ˗
 
 
 
@@ -103,6 +106,7 @@ Outdated! Redoing soon! ^_^
 
 <summary> ${\textsf{\color{#5e0000}﹕  Stamps.   }}$ ..  </summary
 
+˗ˏˋ 🔥 ˎˊ˗
 <img width="99" height="56" alt="IMG_6621" src="https://github.com/user-attachments/assets/a8319774-1065-4cdb-ae05-5bb75810c14f" />
 <img width="99" height="56" alt="IMG_5613" src="https://github.com/user-attachments/assets/05ef664d-c7f9-4228-b7d8-40c31d45239a" />
 <img width="99" height="56" alt="IMG_6623" src="https://github.com/user-attachments/assets/b6a78a60-cceb-42d4-990a-1643321ab87c" />
@@ -120,6 +124,7 @@ Outdated! Redoing soon! ^_^
 <img width="99" height="56" alt="IMG_6635" src="https://github.com/user-attachments/assets/4f86c6ec-91e0-453e-9882-2b967cb240f6" />
 <img width="99" height="56" alt="IMG_6639" src="https://github.com/user-attachments/assets/c4b3571c-ff2d-4dce-bdcc-02d532c9e4ed" />
 
+˗ˏˋ 💥 ˎˊ˗
 
 </details>
 
