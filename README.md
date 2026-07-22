@@ -46,7 +46,7 @@ I'll add more to this later
 
 Like stated in my bio DNI if you're: under the age of 13 . Respect this or you're getting your ass blocked when/if I find out. 
 
-Basic DNI: Zoophiles, pedos, Transphobes, Homophobes, Xenophobes, Racists, Pigs, Tr*mp supporters, religion, and past blocked people. 
+Basic DNI: Zoophiles, pedos, Transphobes, Homophobes, Xenophobes, Racists, Pigs, Tr*mp supporters, religion, Melanie Martinez supporters/ppl who listen to her, people who play any of Quel's games after the controversy (addition to this DNI if you're in the Dandy's World fandom y'all can be weird asf), and past blocked people. 
 
 Other than the basic DNIs I block freely, don't be surpised if I block you. 
 
