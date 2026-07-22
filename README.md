@@ -75,9 +75,11 @@ Other than the basic DNIs I block freely, don't be surpised if I block you.
 <summary> ${\textsf{\color{#5e0000}﹕  Boundaries.   }}$ ..  </summary
 
 ˗ˏˋ 💥 ˎˊ˗
+
 No you can't spam kiss me if I don't know you, and secondly no you can't cover me if I don't know you. 
 
 What you CAN do is spam boop, spam nuzzle, hide behind me, cuddle me, and talk to me. I swear I'm not as mean as I look gang. 
+
 
 ˗ˏˋ 🔥 ˎˊ˗
 
@@ -110,7 +112,7 @@ Outdated! Redoing soon! ^_^
 
 <summary> ${\textsf{\color{#5e0000}﹕  Stamps.   }}$ ..  </summary
 
-˗ˏˋ 🔥 ˎˊ˗
+
 <img width="99" height="56" alt="IMG_6621" src="https://github.com/user-attachments/assets/a8319774-1065-4cdb-ae05-5bb75810c14f" />
 <img width="99" height="56" alt="IMG_5613" src="https://github.com/user-attachments/assets/05ef664d-c7f9-4228-b7d8-40c31d45239a" />
 <img width="99" height="56" alt="IMG_6623" src="https://github.com/user-attachments/assets/b6a78a60-cceb-42d4-990a-1643321ab87c" />
@@ -128,7 +130,7 @@ Outdated! Redoing soon! ^_^
 <img width="99" height="56" alt="IMG_6635" src="https://github.com/user-attachments/assets/4f86c6ec-91e0-453e-9882-2b967cb240f6" />
 <img width="99" height="56" alt="IMG_6639" src="https://github.com/user-attachments/assets/c4b3571c-ff2d-4dce-bdcc-02d532c9e4ed" />
 
-˗ˏˋ 💥 ˎˊ˗
+
 
 </details>
 
@@ -136,7 +138,10 @@ Outdated! Redoing soon! ^_^
 
 <summary> ${\textsf{\color{#5e1c00}﹕  Fandoms.   }}$ ..  </summary
 
+˗ˏˋ 🔥 ˎˊ˗
 
 My fandoms are: TF2, Cookie Run, CoD, Outlast: Trials (obviously LMAO), FNAF, PJSK, Mouthwashing, The Boys, MCU, Spiderverse, Sanrio, South Park, Spider-Man, whatever ThatMob's Verity series' fandom is called, Arcane, and more
 
-PLEEAASEE int if ur in my fandoms! 
+PLEEAASEE int if ur in my fandoms and not on my dni list! 
+
+˗ˏˋ 💥 ˎˊ˗
