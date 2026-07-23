@@ -1,11 +1,4 @@
-<br/>
 
-<div align="center">
-<img width="350" height="20" alt="IMG_6609" src="https://github.com/user-attachments/assets/a54cb8a7-d09a-4e6d-9a92-a04aba3991ce" />
-
-
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&pause=1000&color=EC602D&width=435&lines=So+I+party+like+a+rockstar%2C+;look+like+a+p★rnstar;Every+day+I+go+hard%2C;riding+in+my+sports+car;Pull+off+in+that+V8%2C+songs+on+replay;Spinnin'+like+a+DJ%2C+make+it+look+ez;'Cause+I+go+faster+and+harder!!!+)](https://git.io/typing-svg)
-<img width="400" height="20" alt="IMG_5601" src="https://github.com/user-attachments/assets/30fe9866-5aab-4eed-af16-272bb9960228" />
 
 
 under construction. i'm a lazy fuck this will not be finished in a day. smh. 
