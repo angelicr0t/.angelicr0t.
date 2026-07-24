@@ -18,10 +18,6 @@ under construction. i'm a lazy fuck this will not be finished in a day. smh.
 
 <summary> ${\textsf{\color{#5e0000}﹕  Info.   }}$ ..  </summary
 
-<br/>
-
-<div align="center">
-<img width="552" height="395" alt="IMG_6684" src="https://github.com/user-attachments/assets/931c33c6-c2f0-4a71-ab47-d64f7eb3c47d" />
 
 
 
