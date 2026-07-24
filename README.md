@@ -20,7 +20,9 @@ under construction. i'm a lazy fuck this will not be finished in a day. smh.
 
 <br/>
 
-<div align="left">
+<div align="center">
+<img width="552" height="395" alt="IMG_6684" src="https://github.com/user-attachments/assets/931c33c6-c2f0-4a71-ab47-d64f7eb3c47d" />
+
 
 
 
@@ -57,6 +59,16 @@ I'll add more to this later
 <details align="center">
 
 <summary> ${\textsf{\color{#5e1c00}﹕  DNI.   }}$ ..  </summary
+<br/>
+
+<div align="left">
+<img width="250" height="250" alt="IMG_6652" src="https://github.com/user-attachments/assets/95cae0de-4942-4ce2-8506-fe323b5fe23d" />
+
+
+
+<br/>
+
+<div align="center">
 
 ˗ˏˋ 🔥 ˎˊ˗
 
@@ -83,6 +95,7 @@ Other than the basic DNIs I block freely, don't be surpised if I block you.
 <details align="center">
 
 <summary> ${\textsf{\color{#5e0000}﹕  Boundaries.   }}$ ..  </summary
+
 
 ˗ˏˋ 💥 ˎˊ˗
 
