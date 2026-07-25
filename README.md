@@ -33,8 +33,6 @@ under construction. i'm a lazy fuck this will not be finished in a day. smh.
 <div align="center">
 
 
-
-
 ˗ˏˋ 💥 ˎˊ˗
 
 This is a pt (ponytown) account, not an actual coding based account. I use nonbinary and masc pronouns, nonbinary preferred.
@@ -45,6 +43,7 @@ It's a complete gamble if I'll be antisocial or the most social person you've ei
 I'll add more to this later
 
 ˗ˏˋ 🔥 ˎˊ˗
+
 
 <br/>
 
@@ -60,13 +59,9 @@ I'll add more to this later
 <br/>
 
 <div align="left">
-<img width="250" height="250" alt="IMG_6652" src="https://github.com/user-attachments/assets/95cae0de-4942-4ce2-8506-fe323b5fe23d" />
+<img width="250" height="250" alt="IMG_6652" src="https://github.com/user-attachments/assets/95cae0de-4942-4ce2-8506-fe323b5fe23d" /> <br/>
 
-
-
-<br/>
-
-<div align="center">
+<div align="right">
 
 ˗ˏˋ 🔥 ˎˊ˗
 
@@ -97,12 +92,26 @@ Other than the basic DNIs I block freely, don't be surpised if I block you.
 
 ˗ˏˋ 💥 ˎˊ˗
 
-No you can't spam kiss me if I don't know you, and secondly no you can't cover me if I don't know you. 
+DON'T: spam kiss me if I don't know you, cover me if I don't know you.<br/>
 
-What you CAN do is spam boop, spam nuzzle, hide behind me, cuddle me, and talk to me. I swear I'm not as mean as I look gang. 
+<div align="center"> <img width="400" height="20" alt="IMG_5601" src="https://github.com/user-attachments/assets/ac100c72-aaa7-4e8b-880c-8ead97960807" />
+
+<br/>
+
+<div align="center">
+ <img width="144" height="208" alt="IMG_6693" src="https://github.com/user-attachments/assets/aef1cef5-54af-450a-b4ae-00b3a2a92a4f" />
+
+<br/>
+
+<div align="center"> <img width="400" height="20" alt="IMG_5601" src="https://github.com/user-attachments/assets/ac100c72-aaa7-4e8b-880c-8ead97960807" />
+<br/>
+
+<div align="center"> DO: spam boop, spam nuzzle, hide behind me, cuddle me just try not to cover, and talk to me! 
+I swear I'm not as mean as I look gang. 
 
 
-˗ˏˋ 🔥 ˎˊ˗
+˗ˏˋ 🔥 ˎˊ˗ 
+
 
 
 
