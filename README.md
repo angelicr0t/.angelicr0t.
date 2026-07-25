@@ -56,22 +56,28 @@ I'll add more to this later
 <details align="center">
 
 <summary> ${\textsf{\color{#5e1c00}﹕  DNI.   }}$ ..  </summary
+
 <br/>
 
+<div align="center"> ˗ˏˋ 🔥 ˎˊ˗
+
+<br/>
+
+<div align="right">Like stated in my bio DNI if you're: under the age of 13 . Respect this or you're getting your ass blocked when/if I find out. <br/>
+
 <div align="left">
-<img width="250" height="250" alt="IMG_6652" src="https://github.com/user-attachments/assets/95cae0de-4942-4ce2-8506-fe323b5fe23d" /> <br/>
+<img width="400" height="277" alt="IMG_6688" src="https://github.com/user-attachments/assets/eee76bc3-f577-44c0-890a-b5650cd78556" />
+
+<br/>
 
 <div align="right">
-
-˗ˏˋ 🔥 ˎˊ˗
-
-Like stated in my bio DNI if you're: under the age of 13 . Respect this or you're getting your ass blocked when/if I find out. 
-
 Basic DNI: Zoophiles, pedos, Transphobes, Homophobes, Xenophobes, Racists, Pigs, Tr*mp supporters, religion, Melanie Martinez supporters/ppl who listen to her, people who play any of Quel's games after the controversy (addition to this DNI if you're in the Dandy's World fandom y'all can be weird asf), and past blocked people. 
 
 Other than the basic DNIs I block freely, don't be surpised if I block you. 
 
-˗ˏˋ 💥 ˎˊ˗
+<br/>
+
+<div align="right">˗ˏˋ 💥 ˎˊ˗
 
 
 
