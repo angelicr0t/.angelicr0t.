@@ -1,6 +1,8 @@
 
 
 
+
+
 under construction. i'm a lazy fuck this will not be finished in a day. smh. 
 
 
@@ -164,3 +166,10 @@ My fandoms are: TF2, Cookie Run, CoD, Outlast: Trials (obviously LMAO), FNAF, PJ
 PLEEAASEE int if ur in my fandoms and not on my dni list! 
 
 ˗ˏˋ 💥 ˎˊ˗
+
+</details>
+
+<br/>
+
+<div align="center">
+<img width="635" height="22" alt="IMG_5598" src="https://github.com/user-attachments/assets/f5c34041-1083-4d4e-967a-c3bd12373c0c" />
