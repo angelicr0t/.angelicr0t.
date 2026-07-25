@@ -71,7 +71,7 @@ I'll add more to this later
 <br/>
 
 <div align="right">
-Basic DNI: Zoophiles, pedos, Transphobes, Homophobes, Xenophobes, Racists, Pigs, Tr*mp supporters, religion, Melanie Martinez supporters/ppl who listen to her, people who play any of Quel's games after the controversy (addition to this DNI if you're in the Dandy's World fandom y'all can be weird asf), and past blocked people. 
+(My) Basic DNI: Zoophiles, pedos, Transphobes, Homophobes, Xenophobes, Racists, Pigs, Tr*mp supporters, religion, Melanie Martinez supporters/ppl who listen to her, people who play any of Quel's games after the controversy (addition to this DNI if you're in the Dandy's World fandom y'all can be weird asf), and past blocked people. 
 
 Other than the basic DNIs I block freely, don't be surpised if I block you. 
 
