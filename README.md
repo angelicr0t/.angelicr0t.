@@ -77,7 +77,8 @@ Other than the basic DNIs I block freely, don't be surpised if I block you.
 
 <br/>
 
-<div align="right">˗ˏˋ 💥 ˎˊ˗
+<div align="center">
+ ˗ˏˋ 💥 ˎˊ˗
 
 
 
