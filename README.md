@@ -177,7 +177,7 @@ Outdated! Redoing soon! ^_^
 
 ˗ˏˋ 🔥 ˎˊ˗
 
-My fandoms are: TF2, Cookie Run, CoD, Outlast: Trials (obviously LMAO), FNAF, PJSK, Mouthwashing, The Boys, MCU, Spiderverse, Sanrio, South Park, Spider-Man, whatever ThatMob's Verity series' fandom is called, Arcane, Creepypasta, Dispatch and more
+My fandoms are: TF2, Cookie Run, CoD, Outlast: Trials (obviously LMAO), FNAF, PJSK, Mouthwashing, The Boys, MCU, Spiderverse, Sanrio, South Park, Spider-Man, whatever ThatMob's Verity series' fandom is called, Arcane, Creepypasta, Dispatch, Supernatural, and more
 
 PLEEAASEE int if ur in my fandoms and not on my dni list! 
 
