@@ -21,6 +21,8 @@ juju<3
 
 ⇆　　　◁　　❚❚　　▷　　　↻
 
+<img width="840" height="45" alt="IMG_6937" src="https://github.com/user-attachments/assets/6effae1f-2287-4943-9507-470f88a1bd28" />
+
 
 <br/>
 
@@ -30,7 +32,7 @@ juju<3
 
 </details>
 
-<details align="center">
+<details align="left">
 
 <summary> ${\textsf{\color{#5e0000}﹕  Info.   }}$ ..  </summary
 
@@ -67,7 +69,7 @@ I'll add more to this later
 
 </details>
 
-<details align="center">
+<details align="right">
 
 <summary> ${\textsf{\color{#5e1c00}﹕  DNI.   }}$ ..  </summary
 
@@ -106,7 +108,7 @@ Other than the basic DNIs I block freely, don't be surpised if I block you.
 
 </details>
 
-<details align="center">
+<details align="left">
 
 <summary> ${\textsf{\color{#5e0000}﹕  Boundaries.   }}$ ..  </summary
 
@@ -144,7 +146,7 @@ I swear I'm not as mean as I look gang.
 
 </details>
 
-<details align="center">
+<details align="right">
 
 <summary> ${\textsf{\color{#5e1c00}﹕  Blinkies.   }}$ ..  </summary
 
@@ -159,7 +161,7 @@ Outdated! Redoing soon! ^_^
 
 </details>
 
-<details align="center">
+<details align="left">
 
 <summary> ${\textsf{\color{#5e0000}﹕  Stamps.   }}$ ..  </summary
 
@@ -185,7 +187,7 @@ Outdated! Redoing soon! ^_^
 
 </details>
 
-<details align="center">
+<details align="right">
 
 <summary> ${\textsf{\color{#5e1c00}﹕  Fandoms.   }}$ ..  </summary
 
