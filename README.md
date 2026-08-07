@@ -127,7 +127,7 @@ Other than the basic DNIs I block freely, don't be surpised if I block you.
 
 ˗ˏˋ 💥 ˎˊ˗
 
-DON'T: spam kiss me if I don't know you, cover me if I don't know you.<br/>
+DON'T: spam kiss me if I don't know you, cover me if I don't know you -> (unless i do).<br/>
 
 <div align="center"> <img width="840" height="20" alt="IMG_5601" src="https://github.com/user-attachments/assets/ac100c72-aaa7-4e8b-880c-8ead97960807" />
 
