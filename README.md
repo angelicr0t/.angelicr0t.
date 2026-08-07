@@ -1,9 +1,17 @@
+<img width="840" height="22" alt="IMG_5598" src="https://github.com/user-attachments/assets/f5c34041-1083-4d4e-967a-c3bd12373c0c" />
+
+<br/>
+<div align="center">
+<img width="640" height="413" alt="IMG_6938" src="https://github.com/user-attachments/assets/af2a84eb-4caa-4641-bbcf-b1dd597a3b1c" />
 
 
 
 
 
 under construction. i'm a lazy fuck this will not be finished in a day. smh. 
+
+<img width="840" height="45" alt="IMG_6937" src="https://github.com/user-attachments/assets/961c28f7-0bb4-41a5-aa7e-d2a79bde3abb" />
+
 
 <br/>
 <div align="left">
@@ -204,4 +212,4 @@ PLEEAASEE int if ur in my fandoms and not on my dni list!
 <br/>
 
 <div align="center">
-<img width="635" height="22" alt="IMG_5598" src="https://github.com/user-attachments/assets/f5c34041-1083-4d4e-967a-c3bd12373c0c" />
+<img width="840" height="22" alt="IMG_5598" src="https://github.com/user-attachments/assets/f5c34041-1083-4d4e-967a-c3bd12373c0c" />
