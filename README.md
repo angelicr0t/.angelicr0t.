@@ -5,7 +5,21 @@
 
 under construction. i'm a lazy fuck this will not be finished in a day. smh. 
 
+<br/>
+<div align="left">
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display+bold&size=19&duration=1000&pause=10000&color=670000&width=435&lines=Now+Playing%3A+)](https://git.io/typing-svg) 
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display+bold&size=17&pause=5000&color=FFFFFF&width=435&lines=Wasted+Summers+)](https://git.io/typing-svg)
+
+<br/>
+<div align="left">
+juju<3
+
+
+●━━━━━━────────2:10 <img width="20" height="20" alt="IMG_6933" src="https://github.com/user-attachments/assets/b0fb4af7-c315-449f-a9eb-a172ef068d77" />
+
+⇆　　　◁　　❚❚　　▷　　　↻
 
 
 <br/>
