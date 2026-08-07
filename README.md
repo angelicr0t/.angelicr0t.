@@ -4,9 +4,14 @@
 <div align="center">
 <img width="640" height="413" alt="IMG_6938" src="https://github.com/user-attachments/assets/af2a84eb-4caa-4641-bbcf-b1dd597a3b1c" />
 
+<br>
+<div align="right">
+art credits to: @/sirmistychro on tumblr go check them out! 
 
 
 
+<br>
+<div align="center">
 
 under construction. i'm a lazy fuck this will not be finished in a day. smh. 
 
