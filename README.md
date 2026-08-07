@@ -6,7 +6,7 @@
 
 <br>
 <div align="right">
-art credits to: @/sirmistychro on tumblr go check them out! 
+Banner art credits to: @/sirmistychro on tumblr go check them out! 
 
 
 
@@ -56,7 +56,6 @@ juju<3
 
 
 
-
 <br/>
 
 <div align="center">
@@ -95,7 +94,7 @@ I'll add more to this later
 <div align="right">Like stated in my bio DNI if you're: under the age of 13 . Respect this or you're getting your ass blocked when/if I find out. <br/>
 
 <div align="left">
-<img width="400" height="277" alt="IMG_6688" src="https://github.com/user-attachments/assets/eee76bc3-f577-44c0-890a-b5650cd78556" />
+<img width="277" height="177" alt="IMG_6688" src="https://github.com/user-attachments/assets/eee76bc3-f577-44c0-890a-b5650cd78556" />
 
 <br/>
 
@@ -130,20 +129,20 @@ Other than the basic DNIs I block freely, don't be surpised if I block you.
 
 DON'T: spam kiss me if I don't know you, cover me if I don't know you.<br/>
 
-<div align="center"> <img width="400" height="20" alt="IMG_5601" src="https://github.com/user-attachments/assets/ac100c72-aaa7-4e8b-880c-8ead97960807" />
+<div align="center"> <img width="840" height="20" alt="IMG_5601" src="https://github.com/user-attachments/assets/ac100c72-aaa7-4e8b-880c-8ead97960807" />
 
 <br/>
 
 <div align="center">
- <img width="144" height="208" alt="IMG_6693" src="https://github.com/user-attachments/assets/aef1cef5-54af-450a-b4ae-00b3a2a92a4f" />
+ <img width="208" height="308" alt="IMG_6693" src="https://github.com/user-attachments/assets/aef1cef5-54af-450a-b4ae-00b3a2a92a4f" />
 
 <br/>
 
-<div align="center"> <img width="400" height="20" alt="IMG_5601" src="https://github.com/user-attachments/assets/ac100c72-aaa7-4e8b-880c-8ead97960807" />
+<div align="center"> <img width="840" height="20" alt="IMG_5601" src="https://github.com/user-attachments/assets/ac100c72-aaa7-4e8b-880c-8ead97960807" />
 <br/>
 
 <div align="center"> DO: spam boop, spam nuzzle, hide behind me, cuddle me just try not to cover, and talk to me! 
-I swear I'm not as mean as I look gang. 
+I swear I'm not as mean as I look gang. ^_^
 
 
 ˗ˏˋ 🔥 ˎˊ˗ 
