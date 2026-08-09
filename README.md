@@ -101,6 +101,8 @@ I'll add more to this later
 <div align="right">
 (My) Basic DNI: Zoophiles, pedos, Transphobes, Homophobes, Xenophobes, Racists, Pigs, Tr*mp supporters, religion, Melanie Martinez supporters/ppl who listen to her, people who play any of Quel's games after the controversy (addition to this DNI if you're in the Dandy's World fandom y'all can be weird asf), and past blocked people. 
 
+If you self diagnose ADHD and/or autism you're on VERY, VERY, VERY thin ice. Ice thinner than a sheet of paper. 
+
 Other than the basic DNIs I block freely, don't be surpised if I block you. 
 
 <br/>
